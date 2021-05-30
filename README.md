@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jideolanLOKUN
+- 👋 Hi, I’m @jideolanlokun
 - 👀 I’m interested in interesting stuff
 - 🌱 I’m currently learning how to create value
 - 💞️ I’m looking to collaborate on various mass market service opportunities and offerings
